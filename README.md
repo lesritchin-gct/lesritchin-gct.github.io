@@ -1,1 +1,0 @@
-# lesritchin-gct.github.io
